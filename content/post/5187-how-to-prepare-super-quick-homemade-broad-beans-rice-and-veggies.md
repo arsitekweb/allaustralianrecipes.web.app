@@ -1,0 +1,109 @@
+---
+description: "How to Prepare Super Quick Homemade Broad beans rice and veggies"
+title: "How to Prepare Super Quick Homemade Broad beans rice and veggies"
+slug: 5187-how-to-prepare-super-quick-homemade-broad-beans-rice-and-veggies
+date: 2020-07-18T02:23:59.657Z
+image: https://img-global.cpcdn.com/recipes/88b301541d7884d1/751x532cq70/broad-beans-rice-and-veggies-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/88b301541d7884d1/751x532cq70/broad-beans-rice-and-veggies-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/88b301541d7884d1/751x532cq70/broad-beans-rice-and-veggies-recipe-main-photo.jpg
+author: Nina Vasquez
+ratingvalue: 3.9
+reviewcount: 9
+recipeingredient:
+- "100 g long white rice"
+- "1 medium onion"
+- "5 large cloves garlic"
+- "1 large potatoe"
+- "2 medium size courgette"
+- "2 tablespoons olive oil"
+- "to taste Salt and pepper"
+- " Some dried thyme "
+- "250 green frozen fava beans broad beans"
+- "2 tablespoons neutral oil for sauteeing i use sunflower oil"
+- " Water"
+- "1/2 tea spoon ground cumin"
+- "1/2 tea spoon ground cardimum"
+- " Lemon Zest for garnish"
+recipeinstructions:
+- "Clean all vegetables thoroughly!"
+- "Cut potatoes vertically half an inch size."
+- "Cut zuccinis vertically less than 1/4 inch"
+- "In a non stick pan, put the sunflower oil and then place the potatoes after being seasoned with salt and pepper. Cover the pan"
+- "After around 3 min, check that the potatoes are golden. Then flip them to the other side."
+- "Once both sides are golden, add tow crushed garlic gloves and a dash of thyme into the pan, and then pour in some water, simmer until they are soft. Remove from the pan."
+- "Fry zuccini peices until golden on both sides. Once done, set them aside."
+- "Cut the onion finely. Cut the the garlic gloves as well."
+- "In a pot, add in the olive oil, chopped onions and garlic, sautee them. And then add the beans. Cover the pot on a medium heat gas. Season with salt pepper, cumin, and cardimum."
+- "Add in the washed saiked rice, then water. Simmer until rice is done."
+- "Serve as shown in the picture, garnish with lemon zest and some balsamic vinager. 🙂"
+categories:
+- Recipe
+tags:
+- broad
+- beans
+- rice
+
+katakunci: broad beans rice 
+nutrition: 119 calories
+recipecuisine: American
+preptime: "PT27M"
+cooktime: "PT46M"
+recipeyield: "4"
+recipecategory: Lunch
+
+---
+
+
+![Broad beans rice and veggies](https://img-global.cpcdn.com/recipes/88b301541d7884d1/751x532cq70/broad-beans-rice-and-veggies-recipe-main-photo.jpg)
+
+Hello everybody, I hope you're having an incredible day today. Today, I'm gonna show you how to make a distinctive dish, broad beans rice and veggies. One of my favorites food recipes. This time, I will make it a little bit unique. This will be really delicious.
+
+Veggie Loaded Black Beans and Rice is a healthy and easy meal made with brown rice, black beans, bell pepper, spinach, onion, and savory and spicy seasonings. Make a big batch and eat it as a meal or serve it on the side with our &#34;Honey&#34; BBQ Ribz, Smoky Southern Style Meatloaf, or our Black Bean &amp; Mushroom Enchiladas. Prepare the brown rice according to the package&#39;s instruction.
+
+Broad beans rice and veggies is one of the most well liked of recent trending meals in the world. It is simple, it's quick, it tastes yummy. It's appreciated by millions every day. They are nice and they look wonderful. Broad beans rice and veggies is something which I have loved my entire life.
+
+
+To get started with this particular recipe, we must prepare a few components. You can have broad beans rice and veggies using 14 ingredients and 11 steps. Here is how you cook that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Broad beans rice and veggies:
+
+1. Make ready 100 g long white rice
+1. Make ready 1 medium onion
+1. Get 5 large cloves garlic
+1. Take 1 large potatoe
+1. Take 2 medium size courgette
+1. Take 2 tablespoons olive oil
+1. Make ready to taste Salt and pepper
+1. Make ready  Some dried thyme 🙂
+1. Take 250 green frozen fava beans (broad beans)
+1. Make ready 2 tablespoons neutral oil for sauteeing (i use sunflower oil)
+1. Make ready  Water
+1. Prepare 1/2 tea spoon ground cumin
+1. Take 1/2 tea spoon ground cardimum
+1. Get  Lemon Zest for garnish
+
+
+Once it&#39;s boiling reduce the heat to low and cover with a tight lid. Beans and rice are considered comfort food in many countries. The reason is that beans are so versatile, there are several varieties, and they can be used for several different recipe applications. We have gathered together a list of some of the best vegetarian rice and beans recipes to help you to explore some new culinary horizons. 
+
+<!--inarticleads2-->
+
+##### Steps to make Broad beans rice and veggies:
+
+1. Clean all vegetables thoroughly!
+1. Cut potatoes vertically half an inch size.
+1. Cut zuccinis vertically less than 1/4 inch
+1. In a non stick pan, put the sunflower oil and then place the potatoes after being seasoned with salt and pepper. Cover the pan
+1. After around 3 min, check that the potatoes are golden. Then flip them to the other side.
+1. Once both sides are golden, add tow crushed garlic gloves and a dash of thyme into the pan, and then pour in some water, simmer until they are soft. Remove from the pan.
+1. Fry zuccini peices until golden on both sides. Once done, set them aside.
+1. Cut the onion finely. Cut the the garlic gloves as well.
+1. In a pot, add in the olive oil, chopped onions and garlic, sautee them. And then add the beans. Cover the pot on a medium heat gas. Season with salt pepper, cumin, and cardimum.
+1. Add in the washed saiked rice, then water. Simmer until rice is done.
+1. Serve as shown in the picture, garnish with lemon zest and some balsamic vinager. 🙂
+
+
+The Italian-seasoned rice and beans recipe calls for instant rice, so this is one dish you really can have on the table in five minutes flat. Add a side green salad or some steamed vegetables, and you&#39;ve got a completely vegetarian and vegan meal. To assemble bowls, spoon rice into bowl and top with black beans, then top with roasted veggies. Spritz bowl with lime juice and then top with desired toppings. Fava beans, or broad beans, are great fried, steamed or even raw. 
+
+So that's going to wrap it up for this exceptional food broad beans rice and veggies recipe. Thank you very much for reading. I'm confident you will make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to save this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

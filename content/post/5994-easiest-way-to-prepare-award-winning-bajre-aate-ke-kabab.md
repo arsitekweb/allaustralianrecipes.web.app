@@ -1,0 +1,103 @@
+---
+description: "Easiest Way to Prepare Award-winning Bajre aate ke kabab"
+title: "Easiest Way to Prepare Award-winning Bajre aate ke kabab"
+slug: 5994-easiest-way-to-prepare-award-winning-bajre-aate-ke-kabab
+date: 2020-09-26T06:42:56.437Z
+image: https://img-global.cpcdn.com/recipes/60bd7188e8ae798c/751x532cq70/bajre-aate-ke-kabab-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/60bd7188e8ae798c/751x532cq70/bajre-aate-ke-kabab-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/60bd7188e8ae798c/751x532cq70/bajre-aate-ke-kabab-recipe-main-photo.jpg
+author: Linnie Peters
+ratingvalue: 3.6
+reviewcount: 4
+recipeingredient:
+- "500 gmsminced meat beef or chicken"
+- "100 gmsgreen lehsan"
+- "1.5 tbsp ginger garlic paste"
+- "1 tspgreen chilli paste"
+- "1 tspcrushed red chill"
+- "1 tspred chilli powder"
+- "1 tspturmeric"
+- "1 tspcumin seeds"
+- "1 tspgaram masala powder"
+- "1 tbspcrushed dry coriander"
+- "2 tspsalt"
+- "2 onionsthinly sliced"
+- "1 tomatocut in small cubes"
+- "leaves Hand ful of coriander"
+- "6 tbspbajre ka aata"
+- "1 egg"
+- " Oil for frying"
+recipeinstructions:
+- "1.wash minced meat and discard all the water. Mince should be dry."
+- "2. In a big bowl add mince meat. Add ginger garlic paste, green chilli paste and set aside for half an hour."
+- "3. Now add all the spices and vegetables. Mix very well with your hands so all the ingredients get well incorporated."
+- "4.Lastly add bajre ka aata and egg and mix very well."
+- "5. Now make small round balls and deef fry on medium high heat till brown and crispy from outside. Serve with ketchup and imli chutney. Enjoy!!!!"
+categories:
+- Recipe
+tags:
+- bajre
+- aate
+- ke
+
+katakunci: bajre aate ke 
+nutrition: 199 calories
+recipecuisine: American
+preptime: "PT32M"
+cooktime: "PT54M"
+recipeyield: "2"
+recipecategory: Dinner
+
+---
+
+
+![Bajre aate ke kabab](https://img-global.cpcdn.com/recipes/60bd7188e8ae798c/751x532cq70/bajre-aate-ke-kabab-recipe-main-photo.jpg)
+
+Hello everybody, hope you're having an amazing day today. Today, I'm gonna show you how to prepare a distinctive dish, bajre aate ke kabab. One of my favorites. For mine, I will make it a bit tasty. This will be really delicious.
+
+Learn how to make Memoni Traditional Bajray Atay Ke Kabab Recipe in Urdu. These kabab are specialy made during Ramadan and on Eid. Assalam u Alaikum Today I am uploading kabab (bajre k aate ke) hope u guys like it.
+
+Bajre aate ke kabab is one of the most popular of current trending foods in the world. It's enjoyed by millions daily. It's easy, it's quick, it tastes delicious. They're nice and they look wonderful. Bajre aate ke kabab is something that I've loved my whole life.
+
+
+To begin with this recipe, we must prepare a few ingredients. You can cook bajre aate ke kabab using 17 ingredients and 5 steps. Here is how you cook that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Bajre aate ke kabab:
+
+1. Make ready 500 gms...minced meat (beef or chicken)
+1. Get 100 gms....green lehsan
+1. Prepare 1.5 .....tbsp ginger garlic paste
+1. Get 1 tsp....green chilli paste
+1. Take 1 tsp....crushed red chill
+1. Get 1 tsp....red chilli powder
+1. Prepare 1 tsp....turmeric
+1. Prepare 1 tsp....cumin seeds
+1. Prepare 1 tsp....garam masala powder
+1. Prepare 1 tbsp......crushed dry coriander
+1. Get 2 tsp....salt
+1. Take 2 onions....thinly sliced
+1. Prepare 1 tomato...cut in small cubes
+1. Take leaves Hand ful of coriander
+1. Get 6 tbsp....bajre ka aata
+1. Get 1 ....egg
+1. Take  Oil for frying
+
+
+Vada Pav is a very famous snack for Mumbaikers. It has a Vada, which is made of potato, sandwiched between Pav. A great veg snack like by everyone. At our home, instead of the Vada, we place Mutton Kebab made of mutton mince and bajre ka aata. 
+
+<!--inarticleads2-->
+
+##### Instructions to make Bajre aate ke kabab:
+
+1. 1.wash minced meat and discard all the water. Mince should be dry.
+1. 2. In a big bowl add mince meat. Add ginger garlic paste, green chilli paste and set aside for half an hour.
+1. 3. Now add all the spices and vegetables. Mix very well with your hands so all the ingredients get well incorporated.
+1. 4.Lastly add bajre ka aata and egg and mix very well.
+1. 5. Now make small round balls and deef fry on medium high heat till brown and crispy from outside. Serve with ketchup and imli chutney. - Enjoy!!!!
+
+
+Add a slice of onion, green chutney, and a few drops. Bajre Ke Aate Ke Kabab And Dahi Ki Chutney - Chicken kebabs are too mainstream, so people who are jaded from those regular kekabs can try Bajre Ke Aate Ke Kababs that ar. Home of Pakistani Recipes and Indian Recipes, food and cooking videos for Aate recipes Try this Bajre Kay Kabab Recipe and enjoy. #HappyCookingToYou. Mix all ingredients, make small balls and deep fry until golden brown. 
+
+So that is going to wrap this up for this exceptional food bajre aate ke kabab recipe. Thank you very much for your time. I am sure you can make this at home. There is gonna be more interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

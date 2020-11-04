@@ -1,0 +1,87 @@
+---
+description: "Steps to Prepare Super Quick Homemade Broad Beans Tawa Fry"
+title: "Steps to Prepare Super Quick Homemade Broad Beans Tawa Fry"
+slug: 6250-steps-to-prepare-super-quick-homemade-broad-beans-tawa-fry
+date: 2020-07-31T15:14:32.305Z
+image: https://img-global.cpcdn.com/recipes/108db718ec801f60/751x532cq70/broad-beans-tawa-fry-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/108db718ec801f60/751x532cq70/broad-beans-tawa-fry-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/108db718ec801f60/751x532cq70/broad-beans-tawa-fry-recipe-main-photo.jpg
+author: Fred Brady
+ratingvalue: 3.9
+reviewcount: 6
+recipeingredient:
+- "250 g broad beans"
+- "1 tbsp oil"
+- "To taste salt"
+- "1/2 tsp turmeric powder"
+- "1/2 tsp chilli powder"
+- "1/2 tsp cumin powder"
+- "1/2 tsp coriander powder"
+- "2 tsp ginger garlic paste"
+recipeinstructions:
+- "First of all wash the beans well."
+- "Then slightly trim both the ends of each bean so that the strings which might be present in both the sides can easily be removed."
+- "Transfer them to a pot with some water. Add in a pinch of salt and turmeric powder. Bring it to a boil over medium heat for 5-6 minutes."
+- "Drain and marinate them with ginger garlic paste, turmeric powder, chilli powder, cumin powder, coriander powder and salt."
+- "Heat a Tawa. Sprinkle oil all over and gently place the marinated beans. Shallow fry them over a low flame for 4-5 minutes or until brown spots appear on them."
+- "Remove and serve hot with lunch as a side dish."
+categories:
+- Recipe
+tags:
+- broad
+- beans
+- tawa
+
+katakunci: broad beans tawa 
+nutrition: 267 calories
+recipecuisine: American
+preptime: "PT38M"
+cooktime: "PT47M"
+recipeyield: "2"
+recipecategory: Lunch
+
+---
+
+
+![Broad Beans Tawa Fry](https://img-global.cpcdn.com/recipes/108db718ec801f60/751x532cq70/broad-beans-tawa-fry-recipe-main-photo.jpg)
+
+Hello everybody, hope you are having an incredible day today. Today, I will show you a way to make a distinctive dish, broad beans tawa fry. One of my favorites food recipes. This time, I'm gonna make it a bit tasty. This is gonna smell and look delicious.
+
+Add the broad beans to the hot oil and fry until lightly coloured. Remove the fried beans using a slotted spoon. Broad beans can be cold mixed, fried, and can also be made into various snacks.
+
+Broad Beans Tawa Fry is one of the most popular of current trending meals in the world. It is simple, it's quick, it tastes delicious. It's appreciated by millions every day. Broad Beans Tawa Fry is something that I've loved my entire life. They are fine and they look fantastic.
+
+
+To get started with this particular recipe, we must first prepare a few ingredients. You can have broad beans tawa fry using 8 ingredients and 6 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Broad Beans Tawa Fry:
+
+1. Take 250 g broad beans
+1. Prepare 1 tbsp oil
+1. Make ready To taste salt
+1. Take 1/2 tsp turmeric powder
+1. Make ready 1/2 tsp chilli powder
+1. Take 1/2 tsp cumin powder
+1. Prepare 1/2 tsp coriander powder
+1. Prepare 2 tsp ginger garlic paste
+
+
+By this time broad-beans will get cooked too. Saute &amp; cook in medium flame until potatoes are roasted evenly. Simple &amp; easy Potato Broad-Beans Fry is ready. Indian broad beans look different from Fava beans or normal broad beans. 
+
+<!--inarticleads2-->
+
+##### Instructions to make Broad Beans Tawa Fry:
+
+1. First of all wash the beans well.
+1. Then slightly trim both the ends of each bean so that the strings which might be present in both the sides can easily be removed.
+1. Transfer them to a pot with some water. Add in a pinch of salt and turmeric powder. Bring it to a boil over medium heat for 5-6 minutes.
+1. Drain and marinate them with ginger garlic paste, turmeric powder, chilli powder, cumin powder, coriander powder and salt.
+1. Heat a Tawa. Sprinkle oil all over and gently place the marinated beans. Shallow fry them over a low flame for 4-5 minutes or until brown spots appear on them.
+1. Remove and serve hot with lunch as a side dish.
+
+
+Stir in the olive oil and add lemon juice, salt and pepper to taste. If you&#39;d like a softer texture, use a potato masher to crush a few of the broad beans. Serve on toast with shavings of pecorino or parmesan, or as an accompaniment to lamb, halloumi or fish. I personally prefer the fried beans as they are more similar to the ones I remember, but the baked option is nothing to sneeze at. Up until a couple of years ago, even I have never heard of broad beans. 
+
+So that is going to wrap it up for this special food broad beans tawa fry recipe. Thanks so much for reading. I'm sure you will make this at home. There's gonna be interesting food in home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

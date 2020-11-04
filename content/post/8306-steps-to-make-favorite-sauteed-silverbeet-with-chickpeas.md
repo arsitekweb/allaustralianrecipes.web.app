@@ -1,0 +1,89 @@
+---
+description: "Steps to Make Favorite Sautéed Silverbeet with Chickpeas"
+title: "Steps to Make Favorite Sautéed Silverbeet with Chickpeas"
+slug: 8306-steps-to-make-favorite-sauteed-silverbeet-with-chickpeas
+date: 2020-05-11T18:43:00.538Z
+image: https://img-global.cpcdn.com/recipes/8ed4428d21a003f6/751x532cq70/sauteed-silverbeet-with-chickpeas-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/8ed4428d21a003f6/751x532cq70/sauteed-silverbeet-with-chickpeas-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/8ed4428d21a003f6/751x532cq70/sauteed-silverbeet-with-chickpeas-recipe-main-photo.jpg
+author: Mable Marsh
+ratingvalue: 3.2
+reviewcount: 9
+recipeingredient:
+- "1 bunch Silverbeet     roughly chopped"
+- "1 can Chickpeas "
+- "1 Onion   finely   chopped"
+- "4 cloves Garlic    mashed   fine"
+- "1/2 tsp Chilli flakes "
+- "1/2 tsp Cumin "
+- "1/4 tsp Paprika "
+- "half Lemon lemon  Juice   of"
+- " Olive Oil"
+- "to taste Salt Pepper and"
+recipeinstructions:
+- "Saute the onions in some olive oil until they are translucent. This should take about 4-5mins. Next add the mashed garlic, chilli flakes, cumin and stir-fry for about a minute"
+- "Add the chopped silverbeet, some salt and stir to combine all the ingredients in the pan"
+- "Cover with a lid and allow the leaves to wilt. This shouldn&#39;t take too long! Once it has wilted, add the can of chickpeas"
+- "When the silverbeet  is cooking, you can fry the paneer/tofu/bread in some olive oil till it has crisped up. Once the chickpeas has warmed through in the pan, add the paneer or tofu or fried brown/flat bread. Sprinkle the paprika, add the lemon juice and mix well to combine"
+- "Serve!"
+categories:
+- Recipe
+tags:
+- sauted
+- silverbeet
+- with
+
+katakunci: sauted silverbeet with 
+nutrition: 292 calories
+recipecuisine: American
+preptime: "PT25M"
+cooktime: "PT34M"
+recipeyield: "1"
+recipecategory: Lunch
+
+---
+
+
+![Sautéed Silverbeet with Chickpeas](https://img-global.cpcdn.com/recipes/8ed4428d21a003f6/751x532cq70/sauteed-silverbeet-with-chickpeas-recipe-main-photo.jpg)
+
+Hello everybody, it is me again, Dan, welcome to our recipe page. Today, we're going to prepare a special dish, sautéed silverbeet with chickpeas. It is one of my favorites. For mine, I am going to make it a bit unique. This will be really delicious.
+
+Sautéed Silverbeet with Chickpeas is one of the most well liked of recent trending meals on earth. It's enjoyed by millions daily. It's easy, it is quick, it tastes yummy. Sautéed Silverbeet with Chickpeas is something which I've loved my whole life. They are fine and they look wonderful.
+
+Heat olive oil in a large frypan. Stir in chickpeas and season with salt and pepper; heat through. Place silverbeet in frypan and cook until wilted then add tomato slices.
+
+
+To get started with this particular recipe, we have to first prepare a few ingredients. You can have sautéed silverbeet with chickpeas using 10 ingredients and 5 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Sautéed Silverbeet with Chickpeas:
+
+1. Make ready 1 bunch Silverbeet  : ,  roughly chopped
+1. Prepare 1 can Chickpeas :
+1. Prepare 1 Onion :  finely   chopped
+1. Prepare 4 cloves Garlic :   mashed   fine
+1. Take 1/2 tsp Chilli flakes :
+1. Get 1/2 tsp Cumin :
+1. Take 1/4 tsp Paprika :
+1. Make ready half Lemon lemon : Juice   of
+1. Prepare  Olive Oil
+1. Get to taste Salt Pepper and
+
+
+Note: Substitute silverbeet with kale or rainbow chard. Spicy dukkah &amp; turmeric mixes are available from selected food stores Cover with a lid and turn the heat down to medium low. Once the silver beet starts to wilt, take it off the heat. Fry the bread until golden and crispy. 
+
+<!--inarticleads2-->
+
+##### Instructions to make Sautéed Silverbeet with Chickpeas:
+
+1. Saute the onions in some olive oil until they are translucent. This should take about 4-5mins. Next add the mashed garlic, chilli flakes, cumin and stir-fry for about a minute
+1. Add the chopped silverbeet, some salt and stir to combine all the ingredients in the pan
+1. Cover with a lid and allow the leaves to wilt. This shouldn&#39;t take too long! Once it has wilted, add the can of chickpeas
+1. When the silverbeet  is cooking, you can fry the paneer/tofu/bread in some olive oil till it has crisped up. Once the chickpeas has warmed through in the pan, add the paneer or tofu or fried brown/flat bread. Sprinkle the paprika, add the lemon juice and mix well to combine
+1. Serve!
+
+
+Heat the silver beet again and add the chickpeas. Silverbeet is very cheap at the moment here in New Zealand. I love how packed it is with NUTRIENTS!!!! Silverbeet will add fibre, vitamin C, vitamin E, vitamin A, folate and other nutrients to your diet, but an even better reason to eat silver beet is for the lutein it contains. Drizzle the lemon juice over the mixture and season with salt and pepper, to taste. 
+
+So that's going to wrap it up for this exceptional food sautéed silverbeet with chickpeas recipe. Thanks so much for reading. I'm sure you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

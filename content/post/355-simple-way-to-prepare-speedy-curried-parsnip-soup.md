@@ -1,0 +1,91 @@
+---
+description: "Simple Way to Prepare Speedy Curried parsnip soup"
+title: "Simple Way to Prepare Speedy Curried parsnip soup"
+slug: 355-simple-way-to-prepare-speedy-curried-parsnip-soup
+date: 2020-05-05T04:51:14.496Z
+image: https://img-global.cpcdn.com/recipes/9d5b909c988f2d5c/751x532cq70/curried-parsnip-soup-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/9d5b909c988f2d5c/751x532cq70/curried-parsnip-soup-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/9d5b909c988f2d5c/751x532cq70/curried-parsnip-soup-recipe-main-photo.jpg
+author: Dale Stone
+ratingvalue: 3.1
+reviewcount: 6
+recipeingredient:
+- "1 onion"
+- "3 parsnips"
+- "850 ml water"
+- "1 stock cube"
+- "2 tsp garlic puree"
+- "1 lemon juice and zested"
+- "1 tbsp flour plain or cornflower"
+- "1 tbsp curry powder"
+- "1/2 tsp chilli powder"
+- "1 tbsp oil"
+- " Salt and pepper to season"
+recipeinstructions:
+- "Dice onion and parsnips. Add to frying pan with oil and cook for 5-10 minutes until veg have softened. Add garlic and cook 1 further minute."
+- "Add curry powder and chilli and stir on heat. Add flour and stir well. Cook 30 seconds."
+- "Crumble in stock cube, lemon rind and juice and slowly add stock while stirring."
+- "Boil for 5 minutes then reduce heat and simmer for 20 minutes."
+- "Cool soup before blending until smooth. Then reheat to desired temperature and serve with bread or croutons."
+categories:
+- Recipe
+tags:
+- curried
+- parsnip
+- soup
+
+katakunci: curried parsnip soup 
+nutrition: 110 calories
+recipecuisine: American
+preptime: "PT13M"
+cooktime: "PT39M"
+recipeyield: "3"
+recipecategory: Lunch
+
+---
+
+
+![Curried parsnip soup](https://img-global.cpcdn.com/recipes/9d5b909c988f2d5c/751x532cq70/curried-parsnip-soup-recipe-main-photo.jpg)
+
+Hey everyone, I hope you are having an incredible day today. Today, I will show you a way to prepare a distinctive dish, curried parsnip soup. It is one of my favorites. For mine, I'm gonna make it a bit tasty. This will be really delicious.
+
+This delicious curried parsnip soup is accompanied by homemade vegetable chips. They give a lovely crunch sprinkled over the soup. This curried parsnip soup is the perfect form of resistance against bitterly cold winter days; it will warm your aching bones and put a smile on your face, I guarantee it.
+
+Curried parsnip soup is one of the most favored of recent trending meals in the world. It's easy, it is quick, it tastes delicious. It is appreciated by millions every day. They are fine and they look wonderful. Curried parsnip soup is something that I have loved my entire life.
+
+
+To begin with this particular recipe, we have to prepare a few components. You can cook curried parsnip soup using 11 ingredients and 5 steps. Here is how you cook that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Curried parsnip soup:
+
+1. Make ready 1 onion
+1. Make ready 3 parsnips
+1. Get 850 ml water
+1. Get 1 stock cube
+1. Make ready 2 tsp garlic puree
+1. Take 1 lemon juice and zested
+1. Prepare 1 tbsp flour (plain or cornflower)
+1. Make ready 1 tbsp curry powder
+1. Make ready 1/2 tsp chilli powder
+1. Get 1 tbsp oil
+1. Prepare  Salt and pepper to season
+
+
+Served with parsnip crisps, this soup is great for lunch, or as an entree for a special occasion. This creamy parsnip and apple soup recipe has amazing flavor from the combination of curry powder, coriander, cumin and ginger. Be sure to use fresh curry powder when making this soup. Not tested or verified by Nigella.com. i am submitting this soup as everyone that i make it for really loves it. also, its so quick and easy. 
+
+<!--inarticleads2-->
+
+##### Steps to make Curried parsnip soup:
+
+1. Dice onion and parsnips. Add to frying pan with oil and cook for 5-10 minutes until veg have softened. Add garlic and cook 1 further minute.
+1. Add curry powder and chilli and stir on heat. Add flour and stir well. Cook 30 seconds.
+1. Crumble in stock cube, lemon rind and juice and slowly add stock while stirring.
+1. Boil for 5 minutes then reduce heat and simmer for 20 minutes.
+1. Cool soup before blending until smooth. Then reheat to desired temperature and serve with bread or croutons.
+
+
+Curried parsnip soup makes make a hearty, sweet meal when the weather begins to get a bit chilly. This is a mildly curried parsnip soup but if you want it hotter, just add a little more curry powder or. Curry powder and fresh ginger give the soup a flavor boost, while the chive and apple garnish adds Add the chopped apple, parsnips, and potatoes and stir to coat well. Add the curry powder, ground coriander and ground ginger, then season with salt and pepper, and stir everything together with a. Irish Parsnip Soup is creamy and comforting with a hint of curry spice and a light sweetness from Irish Parsnip Soup. 
+
+So that's going to wrap it up for this special food curried parsnip soup recipe. Thanks so much for your time. I am confident you will make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
